@@ -1,1 +1,23 @@
 # catchmind
+# 1탄
+
+![말씨름](https://github.com/user-attachments/assets/1c9838f6-a6ed-4fb4-a04a-789c6b89029f)
+![물장구](https://github.com/user-attachments/assets/4786b0e8-edb7-43a3-bb93-66069072b38c)
+![방탄유리](https://github.com/user-attachments/assets/c5343554-bd51-4577-a8ae-0d8a04f5f284)
+![백호](https://github.com/user-attachments/assets/66fa7ea8-7a14-4e4d-843d-729614377560)
+![북극곰](https://github.com/user-attachments/assets/1a448af6-cdad-4ed3-be72-ef9927fb69b9)
+![북유럽](https://github.com/user-attachments/assets/3c9c5ea3-d4e6-4963-be89-bba172090b21)
+![불고기](https://github.com/user-attachments/assets/9138984c-b346-4706-8155-0f6f3c493a8f)
+![붕어빵](https://github.com/user-attachments/assets/78617088-4097-413e-b811-1fcbe1caf1ed)
+![블루투스](https://github.com/user-attachments/assets/f47e02d4-5445-4c56-a727-f87e5cc07c0a)
+![사냥개](https://github.com/user-attachments/assets/90cb3458-80fb-4696-987c-1877d17b8cce)
+![삼계탕](https://github.com/user-attachments/assets/e6a2e744-d218-42cf-bdf8-c6cd7b153e51)
+![새총](https://github.com/user-attachments/assets/28d07172-31ea-42cc-9e24-a4c1e9d77f5f)
+![파노라마](https://github.com/user-attachments/assets/9f0bb3e4-2adc-44db-a447-7a51a926e1b4)
+![황제펭귄](https://github.com/user-attachments/assets/6799695d-dbb6-4bf7-b477-c48ab3c2f01b)
+![공개투표](https://github.com/user-attachments/assets/478e4ae0-9901-4cdc-b577-b38dbd05795d)
+![다이소](https://github.com/user-attachments/assets/20ad5422-40aa-4fa2-9bbe-379249b7c5e6)
+![달팽이](https://github.com/user-attachments/assets/328dcc84-8764-4582-bf7e-055bfb349d4d)
+![돈다발](https://github.com/user-attachments/assets/fb334f4e-2e97-4722-8873-0735898aa6d8)
+![돌고래](https://github.com/user-attachments/assets/1eda4ec7-9cbd-4d7b-8b0f-3551279d6f44)
+![만두피](https://github.com/user-attachments/assets/125d2510-a500-4dd0-a8ac-6d03bfdaaed3)
