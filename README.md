@@ -46,3 +46,27 @@
 ![호랑나비](https://github.com/user-attachments/assets/501d0882-83a4-4602-8362-9aa6b532614b)
 ![히든카드](https://github.com/user-attachments/assets/663631fd-ca28-444f-b431-7fd638123476)
 
+#3탄
+
+![운동화](https://github.com/user-attachments/assets/efc6738b-1606-4604-ae5f-5c3a019824f0)
+![전갈자리](https://github.com/user-attachments/assets/e72eed4e-a1b5-4863-9e99-98512c53145d)
+![조각배](https://github.com/user-attachments/assets/2cdba104-a3e7-4e70-8e0b-4e76f191dff4)
+![줄다리기](https://github.com/user-attachments/assets/caf4a2e1-da6a-48d2-b4fa-bc6f345e1074)
+![해리포터](https://github.com/user-attachments/assets/487c6631-e0db-480c-8e2a-85c667145fee)
+![해파리](https://github.com/user-attachments/assets/6bea9686-1bc1-488e-963b-ed1cffd90807)
+![황소개구리](https://github.com/user-attachments/assets/199f919f-7975-4192-8912-160ee34099b6)
+![가오리](https://github.com/user-attachments/assets/a3474b52-5da6-4351-aed3-c9de864f8a7d)
+![개나리](https://github.com/user-attachments/assets/1926f633-9c63-4a8f-8333-3e160d71208a)
+![광대뼈](https://github.com/user-attachments/assets/c5b886c6-6942-4012-982c-d9ae01df9a58)
+![기억상실](https://github.com/user-attachments/assets/f9a53866-b289-4d35-a2ee-539e3d12ff61)
+![도시락](https://github.com/user-attachments/assets/2fca94cd-7e99-4ebf-8e46-6b3bc50b14f3)
+![배탈](https://github.com/user-attachments/assets/a1a92b41-7b63-4148-b8c1-30e86a1ca901)
+![백댄서](https://github.com/user-attachments/assets/a568d3fa-cdfc-466b-afe9-2fc248432b43)
+![성탄절](https://github.com/user-attachments/assets/80e5957b-d8e6-451f-bc2e-8482d0c6abfc)
+![소매](https://github.com/user-attachments/assets/9fe478ec-a289-4cb5-91b3-9a6f1335b726)
+![소용돌이](https://github.com/user-attachments/assets/fd9822ed-f162-4eda-8c73-56316f611ffe)
+![손난로](https://github.com/user-attachments/assets/d36a70c1-b8f9-4ef9-b01f-6a353f90d4e2)
+![수제비](https://github.com/user-attachments/assets/0a0df750-4460-4385-8e26-0924c7661d75)
+![스타벅스](https://github.com/user-attachments/assets/be2b9ca7-9625-4a70-ae4d-c692ae8e6557)
+
+
